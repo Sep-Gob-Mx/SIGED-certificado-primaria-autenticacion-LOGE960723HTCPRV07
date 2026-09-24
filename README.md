@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-LOGE960723HTCPRV07
+LOGE960723HTCPRV07
